@@ -1,6 +1,6 @@
 ---
-title: Welcome to my blog!
----
+title: Enterprise architecture "Jurisprudence" 5g!
+--- ISRAELITES!
 "SI IMPERSONALE"
 Designconstant agentic' covenant profiles'.
 SI impersonale - 'mare-orientale.  zeinith human equilibrium exo-system, chrono system lifeform infrastructure equalibrium           standards. 
