@@ -1,5 +1,5 @@
 ---
-title: ENTERPRISE ARCHITECTURE ISRAELITES! "Jurisprudence" 5g!
+ADMINISTRATION: ENTERPRISE ARCHITECTURE ISRAELITES! "Jurisprudence" 5g!
 --- 
 "SI IMPERSONALE"
 Designconstant agentic' covenant profiles'.
