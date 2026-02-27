@@ -1,6 +1,6 @@
 ---
-title: Enterprise architecture "Jurisprudence" 5g!
---- ISRAELITES!
+title: ENTERPRISE ARCHITECTURE ISRAELITES! "Jurisprudence" 5g!
+--- 
 "SI IMPERSONALE"
 Designconstant agentic' covenant profiles'.
 SI impersonale - 'mare-orientale.  zeinith human equilibrium exo-system, chrono system lifeform infrastructure equalibrium           standards. 
