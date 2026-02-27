@@ -33,6 +33,5 @@ Cause to "stage" Human race "species" generic 'neurol parameters" 'Occipital' cr
 
 statistical 'data analytics , from 'gospel geography's/astrological, 'Ontology statistics. from the co-relative' Instrument 'bible prophecy' in evidenced based theological Intuition; from creation intuitive, 'orthodox, geographic conciousness'{wilderbeast anthology}.
 
-si impersonale 
-Engineering model; Language model,
+si impersonale :
 Engineering model 'innovative prodigy, 'adventis stewardship', engineering revelation; Pedogogal parables, perennial learning,teaching, knowledge wisdom providence. To develop othodox{simple} {geometric} tradjectory; a>b residual symbol,image,ethics, transformed via learning endeavours biblical, democracy's,  etiquette of 'coherent creation 'intellectual-interactive policy/law in natures elemental, 'virtual life-form standards {reparainchen}; 'enlightenedment envisionedment, 'picturesque' characteristics {pastel}interpretation. federation 'compilation, 'laws and 'binding paradism of self sustainance policy's. "creation, "Jurisprudence".
